@@ -15,6 +15,5 @@ Channel your inner ninja and show off your turtle power with our Vintage Teenage
 You can vist my website on Google : [Ashetee Teenage Mutant Ninja Turtles Hoodies](http://google.com.bo/url?q=https://ashetee.com/)
 
 My Social Profile : 
-[Deviantart Ninja Turtles Hoodies](https://www.deviantart.com/asheteeclothing/art/Vintage-Teenage-Mutant-Ninja-Turtles-Road-Crossing-967832174)
----
+[Deviantart Ninja Turtles Hoodies](https://www.deviantart.com/asheteeclothing/art/Vintage-Teenage-Mutant-Ninja-Turtles-Road-Crossing-967832174),
 [Pinterest TMNT Turtles Hoodies](https://www.pinterest.com/ashetee_clothing/rise-of-the-teenage-mutant-ninja-turtles-merch/)
